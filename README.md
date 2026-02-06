@@ -1,6 +1,8 @@
-### blablabla Interview
+
+https://www.linkedin.com/posts/iastem_iastem-speakerspotlight-drirvingmartinez-activity-7280780664445005824-lRNW/
+
 https://mumbaitimes.org/dr-irving-martinez-pacheco-pioneering-ai-sustainability-and-education-for-a-better-future/
-### bfhjadkf
+
 https://solsaga.in/dr-irving-martinez-pacheco-pioneering-ethical-ai-and-sustainable-education-for-a-better-tomorrow/
 
 https://www.proed.com.vn/speakers/irving-martinez
